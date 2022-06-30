@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @victorpaucas
+- 👀 I’m interested in technology
+- 🌱 I’m currently learning AI
+- 💞️ I’m looking to collaborate on KYZ
+- 📫 How to reach me vhpaucas@gmail.com
